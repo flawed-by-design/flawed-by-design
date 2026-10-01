@@ -6,5 +6,4 @@
 
 <p>lucifer kin , doubles dni ever</p> ⠀⠀⠀ ₊⠀⠀ ⠀⠀⠀
 
-
-<img src="https://missskunky-graphics.neocities.org/assets/graphics/dividers/starssparklesbubblesandtrinkets/sparkle-white3.gif" alt="White sparkles"/<
+<img src="https://missskunky-graphics.neocities.org/assets/graphics/dividers/starssparklesbubblesandtrinkets/sparkle-white3.gif" alt="White sparkles"/>

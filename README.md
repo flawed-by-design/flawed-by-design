@@ -7,4 +7,4 @@
 <div align="center">
 <p>lucifer kin , doubles dni ever</p> ⠀⠀⠀ ₊⠀⠀ ⠀⠀⠀
 <div align="center">
-<img src="https://pixelsafari.neocities.org/dividers/blackstitches.gif)](https://pixelsafari.neocities.org/dividers/blackstitches.gif"
+━━━━━━━━━━━━━━ ⛧ ━━━━━━━━━━━━━━

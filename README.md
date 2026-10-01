@@ -7,5 +7,5 @@
 <div align="center">
 <p>lucifer kin , doubles dni ever</p> ⠀⠀⠀ ₊⠀⠀ ⠀⠀⠀
 <div align="center">
-<img src="https://missskunky-graphics.neocities.org/assets/graphics/dividers/misc/crosses3.png" alt="Cross necklace"/>
+<img src="https://missskunky-graphics.neocities.org/assets/graphics/dividers/misc/crosses.png" alt="Crosses"/>
 

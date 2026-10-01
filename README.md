@@ -7,4 +7,4 @@
 <p>lucifer kin , doubles dni ever</p> ⠀⠀⠀ ₊⠀⠀ ⠀⠀⠀
 
 
-<img src="https://missskunky-graphics.neocities.org/assets/graphics/dividers/holiday/halloween21.gif" alt="Skulls"/>
+<img src="https://missskunky-graphics.neocities.org/assets/graphics/dividers/holiday/halloween21.gif" alt="Skulls"/> {200:200}

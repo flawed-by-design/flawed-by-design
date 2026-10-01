@@ -5,5 +5,5 @@
 <img src="https://missskunky-graphics.neocities.org/assets/graphics/misc/candle.gif" alt="Candle"/> <img src="https://missskunky-graphics.neocities.org/assets/graphics/misc/pentagram.gif" alt="Wooden Pentagram"/>
 
 <p>lucifer kin , doubles dni ever</p> ⠀⠀⠀ ₊⠀⠀ ⠀⠀⠀
-
+<div align="center">
 <img src="https://missskunky-graphics.neocities.org/assets/graphics/dividers/starssparklesbubblesandtrinkets/sparkle-white3.gif" alt="White sparkles"/>

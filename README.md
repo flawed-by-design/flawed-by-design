@@ -15,4 +15,6 @@
 byi  : I can get extremely paranoid at times that you are going to leave me . I can get extremely attached . please be careful with me . <img src="https://supplies.ju.mp/assets/images/tiny1/264157fd.gif?v=2e2c9a9d" alt="Untitled"/>
 <div align="center">
 <br><br><br>
+<img src="https://64.media.tumblr.com/720508b3437280ab1e68aaa7ac57761c/tumblr_ojaa12xJ6M1vhfplho1_500.gif"
+<br><br><br>
 ━━━━━━━━━━━━━━ ⛧ ━━━━━━━━━━━━━━

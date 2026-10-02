@@ -1,6 +1,7 @@
 <div align="center">
 ━━━━━━━━━━━━━━ ⛧ ━━━━━━━━━━━━━━
-<br><br><br>
+<img src="data:image/svg+xml;utf8,<svg xmlns='http://w3.org' width='400' height='50' viewBox='0 0 400 50'><style>@keyframes type { from { width: 0; } to { width: 100%; } } @keyframes blink { from, to { border-color: transparent; } 50% { border-color: %2358a6ff; } } .typing { font-family: 'Courier New', Courier, monospace; font-size: 20px; color: %23c9d1d9; font-weight: bold; white-space: nowrap; overflow: hidden; border-right: 3px solid %2358a6ff; width: 0; animation: type 3.5s steps(30, end) forwards, blink 0.75s step-end infinite; }</style><foreignObject width='100%' height='100%'><div xmlns='http://w3.org'><div class='typing'>Hello, welcome to my GitHub!</div></div></foreignObject></svg>" />
+</p><br><br><br>
 <div align="center">
 <p>𐄂   ⠀⠀⠀⠀⠀          "Contrary to popular belief, I don't lie."⠀  † ⠀     𐄂</p>
 <div align="center">

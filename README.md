@@ -1,5 +1,6 @@
 <div align="center">
 ━━━━━━━━━━━━━━ ⛧ ━━━━━━━━━━━━━━
+<img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled"/>
 </p><br><br><br>
 <div align="center">
 <p>𐄂   ⠀⠀⠀⠀⠀          "Contrary to popular belief, I don't lie."⠀  † ⠀     𐄂</p>

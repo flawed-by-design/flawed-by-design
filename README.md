@@ -23,6 +23,7 @@ byi  : I can get extremely paranoid at times that you are going to leave me . I 
 <div align="center">
 <br><br><br>
 <img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled"/>
+<br><br><br>
 ━━━━━━━━━━━━━━ ⛧ ━━━━━━━━━━━━━━
 <div align="center">
 

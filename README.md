@@ -3,7 +3,7 @@
 <img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled"/>
 </p><br><br><br>
 <div align="center">
-<p>   ⠀⠀⠀⠀⠀          𐄂 ⠀⠀⠀⠀⠀ " 𝘾𝙤𝙣𝙩𝙧𝙖𝙧𝙮 𝙩𝙤 𝙥𝙤𝙥𝙪𝙡𝙖𝙧 𝙗𝙚𝙡𝙞𝙚𝙛, 𝙄 𝙙𝙤𝙣'𝙩 𝙡𝙞𝙚. "⠀ † ⠀ 𐄂</p>
+<p>𐄂 ⠀⠀⠀⠀⠀ " 𝘾𝙤𝙣𝙩𝙧𝙖𝙧𝙮 𝙩𝙤 𝙥𝙤𝙥𝙪𝙡𝙖𝙧 𝙗𝙚𝙡𝙞𝙚𝙛, 𝙄 𝙙𝙤𝙣'𝙩 𝙡𝙞𝙚. "⠀ † ⠀ 𐄂</p>
 <div align="center">
 <br><br><br>
 <img src="https://missskunky-graphics.neocities.org/assets/graphics/misc/candle.gif" alt="Candle"/> <img src="https://missskunky-graphics.neocities.org/assets/graphics/misc/pentagram.gif" alt="Wooden Pentagram"/>

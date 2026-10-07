@@ -11,6 +11,7 @@
 <br><br><br>
 <p>lucifer kin , doubles dni ever</p> ⠀⠀⠀ ₊⠀⠀ ⠀⠀⠀
 <div align="center">
+<img src="https://biscuit.crd.co/assets/images/gallery85/59bf563c.gif?v=edffcd2f" alt="Untitled"/>
 <br><br><br>
 <div align="center">
 byi  : I can get extremely paranoid at times that you are going to leave me . I can get extremely attached . please be careful with me . <img src="https://supplies.ju.mp/assets/images/tiny1/264157fd.gif?v=2e2c9a9d" alt="Untitled"/>

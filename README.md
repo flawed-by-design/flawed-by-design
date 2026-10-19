@@ -11,3 +11,9 @@ lucif𝑒r fictkin ,, doubles dni
 <div align="center">
 <br>
 <a rel="nofollow me" class="Link--primary" href="https://rentry.co/luciself">r℮ᥒtry</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  ‎<a rel="nofollow me" class="Link--primary" href="https://guns.lol/flawedbydesign">guns</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  <a rel="nofollow me" class="Link--primary" href="https://flawedbydesign.atabook.org">guestbook</a></p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mbf2yadtg275h5yhi66ysww2de&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>

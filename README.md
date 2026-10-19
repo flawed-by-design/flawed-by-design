@@ -10,7 +10,7 @@ lucif𝑒r fictkin ,, doubles dni
 <br><br>
 <div align="center">
 <br>
-<a rel="nofollow me" class="Link--primary" href="https://rentry.co/luciself">r℮ᥒtry</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  ‎<a rel="nofollow me" class="Link--primary" href="https://guns.lol/flawedbydesign">guns</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  <a rel="nofollow me" class="Link--primary" href="https://flawedbydesign.atabook.org">guestbook</a></p>
+<a rel="nofollow me" class="Link--primary" href="https://rentry.co/luciself">r℮ᥒtry</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  ‎<a rel="nofollow me" class="Link--primary" href="https://guns.lol/flawedbydesign">guns</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  <a rel="nofollow me" class="Link--primary" href="https://luciself.atabook.org/">guestbook</a></p>
 
 <br>
 <p align="center">

@@ -7,4 +7,5 @@
 <img src="https://64.media.tumblr.com/78144230b99ace227eddc42daa27eefa/tumblr_orkdi4VxoU1vcput5o1_250.gif" >
 <br><br>
 <br><br>
+<div align="center">
 lucif𝑒r fictkin ,, doubles dni

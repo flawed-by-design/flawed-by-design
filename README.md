@@ -9,3 +9,6 @@
 <br><br>
 <div align="center">
 lucif𝑒r fictkin ,, doubles dni
+<br><br>
+<div align="center">
+<a rel="nofollow me" class="Link--primary" href="https://rentry.co/luciself">r℮ᥒtry</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  ‎<a rel="nofollow me" class="Link--primary" href="https://guns.lol/flawedbydesign">guns</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  <a rel="nofollow me" class="Link--primary" href="https://flawedbydesign.atabook.org">guestbook</a></p>

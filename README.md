@@ -14,6 +14,6 @@ lucif𝑒r fictkin ,, doubles dni
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mbf2yadtg275h5yhi66ysww2de&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mbf2yadtg275h5yhi66ysww2de&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffb5b5&bar_color_cover=false">
   </a>
 </p>

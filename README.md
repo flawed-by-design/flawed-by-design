@@ -11,7 +11,7 @@ lucif℮r fictkin ,, doubl℮s dni
 <div align="center">
 <br>
 <a rel="nofollow me" class="Link--primary" href="https://rentry.co/luciself">r℮ᥒtry</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  ‎<a rel="nofollow me" class="Link--primary" href="https://guns.lol/flawedbydesign">guns</a>   ‎     ‎  ‎‎     ‎ ‎     ‎  <a rel="nofollow me" class="Link--primary" href="https://luciself.atabook.org/">gu℮stbook</a></p>
-
+<a rel="nofollow me" class="Link--primary" href="https://flawedbydesign.straw.page">strawpag℮</a></p>
 <br>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
